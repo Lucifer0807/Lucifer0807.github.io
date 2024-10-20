@@ -33,6 +33,6 @@ Here are some of the key projects I’ve worked on:
 I am always open to discussing new opportunities or collaborations. Feel free to reach out to me via:
 
 - Email: [raghavkhandelwal39@gmail.com]
-- LinkedIn: [[your LinkedIn profile link](https://www.linkedin.com/in/raghav-khandelwal-a42545228/)]
+- LinkedIn: [[Link](https://www.linkedin.com/in/raghav-khandelwal-a42545228/)]
 
 Thank you for visiting my portfolio! I look forward to connecting with you.
